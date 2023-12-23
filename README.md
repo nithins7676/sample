@@ -1,2 +1,2 @@
 
-A website to o trick my bestie😁
+A website to trick my bestie😁
